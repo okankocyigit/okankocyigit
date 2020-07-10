@@ -1,1 +1,1 @@
-<p align="center"><img src="https://raw.githubusercontent.com/okankocyigit/okankocyigit/master/me.gif" /></p>
+<p align="center"><img src="https://i.giphy.com/RThN0hOS2GO4M.gif" /></p>
